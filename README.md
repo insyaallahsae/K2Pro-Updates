@@ -1,1 +1,0 @@
-For profesional used only.
